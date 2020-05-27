@@ -67,7 +67,7 @@
 
 ![](assets/Basic/34.jpg)
 
-![](assets/Basic/34.jpg)
+![](assets/Basic/35.jpg)
 
 ![](assets/Basic/36.jpg)
 
